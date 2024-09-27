@@ -2,7 +2,7 @@
 - 👀 I’m interested in learn new things.
 - 🌱 I’m currently learning C and C++ language.
 - 💞️ I’m looking to collaborate to get experience.
-- 📫 How to reach me : manishwork880077@gmail.com
+- 📫 Contact : manishwork880077@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Nothing.
 
